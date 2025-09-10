@@ -1,0 +1,1 @@
+Hello, my name is Abel Thomas. I'm in the BCIS program at UFV and it is my final semester. I'm concentrating in cybersecurity in my degree. In my free time I like to swim and play the piano. Hoping to have a great time in this course!
